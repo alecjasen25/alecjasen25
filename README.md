@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @alecjasen
+- 👀 I’m interested in computers
+- 🌱 I’m currently learning code
+- 📫 How to reach me alecjasen03@gmail.com
